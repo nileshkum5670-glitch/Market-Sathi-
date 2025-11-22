@@ -1,1 +1,1 @@
-# Market-Sathi-
+google.com, pub-4218496774348268, DIRECT, f08c47fec0942fa0
